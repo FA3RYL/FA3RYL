@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FA3RYL!
-- 🗒️ Wife, Mom, Gamer, & http://Em8er.com Community Coordinator. Posts are mine, unless otherwise noted.
+- 🗒️ Wife, Mom, Gamer, & http://Em8er.com Community Manager. Posts are mine, unless otherwise noted.
 - 🖼️ My avatar is used w/permission. Please visit: http://jonathonart.com, to see more fantasy art.
 - 👀 I’m interested in PC games, yarn crafts, cooking, and web design.
 - 🌱 I’m currently learning... Shhh
